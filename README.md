@@ -1,5 +1,5 @@
 # in-the-cave
-This respository exists to catalogue my personal musings.
+shadows of thoughts. nothing more.
 
 I AM THAT I AM.  
 Man and the 3 stages of consciousness.  
